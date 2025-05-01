@@ -8,6 +8,7 @@ I'm passionate about **AI/ML** and using it to solve real-world problems — esp
 
 📫 Reach me at:  
 📧 khbiplav@gmail.com
+
 📧 khbiplav@umich.edu  
 
 ---
